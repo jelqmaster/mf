@@ -2,6 +2,5 @@ Akajakakaklaka
 GhostJK2
 CrizoH
 SokonozariAS2
-qoloimalik
 Bo1m52
 OGroboss
