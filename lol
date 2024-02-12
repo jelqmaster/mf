@@ -1,3 +1,4 @@
 Akajakakaklaka
 GhostJK2
 CrizoH
+SokonozariAS2
